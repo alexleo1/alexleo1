@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @alexleo1
+- 👀 I’m interested in Minecraft
+- 🌱 I’m currently learning or rather Increasing how much I know about HTML and CSS, javascript
+- 💞️ I’m looking to collaborate on Whatever I find easy
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I have spent 10000 hours on all the video games I have combined 
